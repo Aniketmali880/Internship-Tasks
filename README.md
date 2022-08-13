@@ -1,3 +1,4 @@
 # Internship-Tasks
 
-https://media-exp1.licdn.com/dms/image/C560BAQFgHU3sTF4LfQ/company-logo_200_200/0/1519895156650?e=2159024400&v=beta&t=1iqBaESC2l4UUW7JjEjq0R_HQhwRTaaqyQG1k46q4bs
+![image](https://user-images.githubusercontent.com/97382532/184477600-46251de0-0b2f-42bd-bb3f-ef8ef5089f79.png)
+
